@@ -20,10 +20,10 @@ Emilio's gmail
 Wk 14
 
 Cat's Availabilty for Group work: 
-Mon: 9 - 10pm
-Tue: 9 - 10pm
-Wed: 6 - 7pm
-Thur: 7-8pm
-Fri: 7-8pm
-Sat: 9- 10am 
-Sun: 8 - 12pm
+- Mon: 9 - 10pm
+- Tue: 9 - 10pm
+- Wed: 6 - 7pm
+- Thur: 7-8pm
+- Fri: 7-8pm
+- Sat: 9- 10am 
+- Sun: 8 - 12pm
