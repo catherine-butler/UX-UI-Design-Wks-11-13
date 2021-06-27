@@ -15,4 +15,15 @@
       - Design chats: need a clear strucutre of how to tackle/make decisions and put a time limit on discussions
       - End each group session with timescales for next meeting and delegate tasks to do between now and then
       
-Emilio's gmail orgemilio76@gmail.com
+Emilio's gmail 
+
+Wk 14
+
+Cat's Availabilty for Group work: 
+Mon: 9 - 10pm
+Tue: 9 - 10pm
+Wed: 6 - 7pm
+Thur: 7-8pm
+Fri: 7-8pm
+Sat: 9- 10am 
+Sun: 8 - 12pm
