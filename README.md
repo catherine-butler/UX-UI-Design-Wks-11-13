@@ -15,7 +15,7 @@
       - Design chats: need a clear strucutre of how to tackle/make decisions and put a time limit on discussions
       - End each group session with timescales for next meeting and delegate tasks to do between now and then
       
-Emilio's gmail 
+Emilio's gmail ecomiling@rocketmail.com 
 
 Wk 14
 
